@@ -55,8 +55,7 @@
 ## 📫 Let's Connect
 
 - 💼 [LinkedIn](#)  
-- 📧 anshul@example.com  
-- 🌐 Portfolio coming soon...  
+- 📧 rawat.a.work@gmail.com   
 
 ---
 
